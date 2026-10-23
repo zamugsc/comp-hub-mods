@@ -1,2 +1,2 @@
 # comp-hub-mods
-Mods and patches
+Random mods and patches will be uploaded and updated here 🦥
